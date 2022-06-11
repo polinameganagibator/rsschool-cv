@@ -1,5 +1,5 @@
 # Polina Pavlovskaya
-+375293062084
+**+375293062084** 
 ## Learning JS
 English
 
