@@ -1,1 +1,1 @@
-https://polinameganagibator.github.io/rsschool-cv/cv
+https://polinameganagibator.github.io/rsschool-cv/
